@@ -43,9 +43,9 @@ Las actualizaciones serán publicadas en esta misma página.
 
 Si tienes preguntas sobre esta Política de Privacidad, puedes contactarme a:
 
-**Sebastián Buccolini**  
-Email: [tu-email@ejemplo.com]  
-Sitio web: [opcional]
+**Juan Mateo Buccolini**  
+Email: juanmateobuccolini@gmail.com  
+Sitio web: https://www.linkedin.com/in/juan-mateo-buccolini
 
 ---
 
